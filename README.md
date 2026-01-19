@@ -64,7 +64,7 @@ This song had me at the cover, but it's got some really enjoyable piano. This is
 ## Yoshino - Sandpaper Moon
 It's swing-ish? I love swing-ish songs.
 ## The Vanished People
-They're italian! Music's all in english. They made some good songs, feeling almost.. dreamy? As of 19/1/2027, though, they got a bit stale. I personally prefer "Parlami", "S!cK" and "Soul Vacation".
+They're italian! Music's all in english. They made some good songs, feeling almost.. dreamy? As of 19/1/2026, though, they got a bit stale. I personally prefer "Parlami", "S!cK" and "Soul Vacation".
 ## bitbreaker - God Only Knows
 Did I say vocaloid was over? It's not. It's somewhere between hard rock and metal, but with Kasane Teto.
 ## Hiroyuki Sawano - INERTIA, PARAGON
