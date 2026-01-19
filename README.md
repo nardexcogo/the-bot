@@ -23,6 +23,9 @@ An Atlus (Persona, Shin Megami Tensei) franchise, with a relatively fresh take o
 ## Hollow Knight Silksong
 PLAY THE GAME BROTHER.
 
+## Monster Hunter: World
+It's great, you know it. It's multiplayer, and fantastic. PLAY THIS WITH ME. PLEASE.
+
 # Music:
 # Disclaimer: Yes, I know most of this is JPOP. I do, in fact, like JPOP.
 # Second disclaimer: it's "Artist - Song". It's the reverse because I want you to forget and feel dumb when you expect the first part to be the song.
