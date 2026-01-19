@@ -55,6 +55,7 @@ is pretty fun. The rest gets a little too weird for me. Surprise! It's vocaloid!
 
 ## dada - Ambassador
 The vocaloid is almost over, I swear.
+
 ## masarada - Irregular Man
 Mostly because of the MV, it's really funny. One more vocaloid and I'm done, please bear with me.
 ## nunununununununununununununununununununununununununununununununununununununununununununununununununununununununununununununununununununununu
