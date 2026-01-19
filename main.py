@@ -50,8 +50,7 @@ def github_webhook():
 
     if event == "push":
         message = (
-            "Come on Sara! Check my new recommendation!\n",
-            f"It's right here: {repo}."
+            "Come on Sara! Check my new recommendation!\n" + f"It's right here: {repo}."
         )
 
         client.loop.create_task(send_dm(message))
