@@ -26,6 +26,9 @@ PLAY THE GAME BROTHER.
 ## Monster Hunter: World
 It's great, you know it. It's multiplayer, and fantastic. PLAY THIS WITH ME. PLEASE.
 
+## Guilty Gear Strive
+Fighting games are fun and competitive, with plenty of depth. Guilty Gear is also one of the major fighting games around, so queue times are shorter than, I don't know, Melty Blood?
+
 # Music:
 # Disclaimer: Yes, I know most of this is JPOP. I do, in fact, like JPOP.
 # Second disclaimer: it's "Artist - Song". It's the reverse because I want you to forget and feel dumb when you expect the first part to be the song.
