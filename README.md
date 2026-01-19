@@ -52,6 +52,7 @@ Anything, but I personally enjoy "Six Feet Under". Still vocaloid.
 
 ## Riproducer - Man in the Mirror
 is pretty fun. The rest gets a little too weird for me. Surprise! It's vocaloid!
+
 ## dada - Ambassador
 The vocaloid is almost over, I swear.
 ## masarada - Irregular Man
