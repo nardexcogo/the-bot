@@ -34,16 +34,22 @@ Fighting games are fun and competitive, with plenty of depth. Guilty Gear is als
 # Second disclaimer: it's "Artist - Song". It's the reverse because I want you to forget and feel dumb when you expect the first part to be the song.
 
 ## AHUB - The Clumsies
+
 ## Natsuyama Yotsugi
 basically any song. Yes, it's all vocaloid.
+
 ## Pinata - Q&A
 Yes, it's still vocaloid.
+
 ## Flavor Foley
 EVERY. SONG. Of course it's still vocaloid. English, this time!
+
 ## Jamie Paige 
 The artist in general, though the jingle gets a little annoying. Would you be surprised if I told you it's vocaloid? She's part of Flavor Foley, by the way.
+
 ## Vane Lily
 Anything, but I personally enjoy "Six Feet Under". Still vocaloid.
+
 ## Riproducer - Man in the Mirror
 is pretty fun. The rest gets a little too weird for me. Surprise! It's vocaloid!
 ## dada - Ambassador
