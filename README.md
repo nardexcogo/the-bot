@@ -33,6 +33,7 @@ Fighting games are fun and competitive, with plenty of depth. Guilty Gear is als
 I just realized the game exists, 12 years after it came out. I got a short of it while mindlessly consuming content to destress a couple days ago, actually. Also, it's a stealth game sort of like Hitman.
 
 ## Deponia
+It's a point and click adventure. It's 4 different games, actually. They're all very funny, though a bit confusing at times. I recommend having a guide at hand in case you feel frustrated.
 
 # Music:
 # Disclaimer: Yes, I know most of this is JPOP. I do, in fact, like JPOP.
