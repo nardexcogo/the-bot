@@ -35,6 +35,9 @@ I just realized the game exists, 12 years after it came out. I got a short of it
 ## Deponia
 It's a point and click adventure. It's 4 different games, actually. They're all very funny, though a bit confusing at times. I recommend having a guide at hand in case you feel frustrated.
 
+## Haven
+A very relaxing "rpg-like" experience. It's quite short and you should play this for the characters. They're lovers running away from a dystopian entity known as the Matchmaker, which arbitrarily decides who is going to marry who.
+
 # Music:
 # Disclaimer: Yes, I know most of this is JPOP. I do, in fact, like JPOP.
 # Second disclaimer: it's "Artist - Song". It's the reverse because I want you to forget and feel dumb when you expect the first part to be the song.
